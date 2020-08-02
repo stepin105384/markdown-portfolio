@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Emoji are fun :sparkles:, and they can be silly :smile:, but they can also be an important communication tool when working with remote teams . Tone doesn't come across as clearly when reading text as it comes speaking face to face, and emojis can be helpful in conveying context and emotions. :heart:
